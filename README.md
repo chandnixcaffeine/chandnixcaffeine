@@ -6,6 +6,6 @@
 	
  ⟫ you can reach me on LinkedIn or instagram using the same username @chandnixcaffeine.
 	
- ⟫ Would love to connect with you people.
+ 
 
 
