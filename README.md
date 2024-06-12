@@ -4,7 +4,6 @@
 	
  ⟫ I’m currently learning javascript.
 	
- ⟫ you can reach me on LinkedIn or instagram using the same username @chandnixcaffeine.
 	
  
 
